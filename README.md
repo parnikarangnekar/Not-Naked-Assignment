@@ -1,0 +1,1 @@
+# Not-Naked-Assignment
